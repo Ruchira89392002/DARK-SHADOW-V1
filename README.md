@@ -1,6 +1,6 @@
 <div align="center">
   
-  <img src="https://i.ibb.co/frfFSTL/1691320469926.jpg" width="150" height="150" border="0" alt="PFP">
+  <img src="https://i.ibb.co/pn6WnqM/Picsart-23-09-02-18-11-08-323.jpg" width="140" height="140" border="0" alt="PFP">
 
 </div>
 
